@@ -1,2 +1,0 @@
-Hey! 👋 I'm a 16-year-old navigating the wild ride of 10th grade 📚. Call me [Your Name], your friendly neighborhood coding enthusiast! 💻✨ Coding isn't just my hobby; it's the heartbeat of my world. 🖱️🌐
-But hey, the excitement doesn't stop there! I'm your go-to guy for coding adventures, from unraveling algorithms to crafting innovative solutions. 💡 Need help or just want to geek out about code? Hit me up at mubeenshahid3188@gmail.com! 📧✨
